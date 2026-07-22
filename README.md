@@ -124,6 +124,8 @@ B.Tech in Mechanical Engineering
 Indian Institute of Technology (ISM) Dhanbad
 
 GitHub: https://github.com/umeshyaramalla45
+LinkedIn:https://www.linkedin.com/in/umeshyaramalla45
+
 
 ---
 
